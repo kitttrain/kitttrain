@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I decided that it was not wisdom that enabled poets to write their poetry, but a kind of instinct or inspiration, such as you find in seers and prophets who deliver all their sublime messages without knowing in the least what they mean. - Isocrates
+    ## If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. - Morris West
