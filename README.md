@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The time to repair the roof is when the sun is shining. - John F. Kennedy
+    ## Great minds discuss ideas; average minds discuss events; small minds discuss people. - Eleanor Roosevelt
