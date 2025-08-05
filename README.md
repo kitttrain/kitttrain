@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. - Morris West
+    ## I owe my solitude to other people. - Alan Watts
