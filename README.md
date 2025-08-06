@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## It all depends on how we look at things, and not how they are in themselves. - Carl Jung
+    ## Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. - Oprah Winfrey
