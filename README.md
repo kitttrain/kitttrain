@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. - Oprah Winfrey
+    ## There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living. - Nelson Mandela
