@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning. - Laozi
+    ## Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish. - Ovid
