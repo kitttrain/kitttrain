@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Truth is powerful and it prevails. - Sojourner Truth
+    ## The opportunity for brotherhood presents itself every time you meet a human being. - Jane Wyman
