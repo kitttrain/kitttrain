@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The opportunity for brotherhood presents itself every time you meet a human being. - Jane Wyman
+    ## Nothing will work unless you do. - Maya Angelou
