@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The only limit to our realization of tomorrow will be our doubts of today. - Franklin D. Roosevelt
+    ## If there is no struggle, there is no progress. - Frederick Douglass
