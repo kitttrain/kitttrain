@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A man should look for what is, and not for what he thinks should be. - Albert Einstein
+    ## People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not. - Johann Wolfgang von Goethe
