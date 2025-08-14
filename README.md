@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not. - Johann Wolfgang von Goethe
+    ## Wisdom alone is the science of other sciences. - Plato
