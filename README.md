@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Wisdom alone is the science of other sciences. - Plato
+    ## The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. - Walter Benjamin
