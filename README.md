@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Trust your own instinct. Your mistakes might as well be your own, instead of someone else's. - Billy Wilder
+    ## Action is the foundational key to all success. - Pablo Picasso
