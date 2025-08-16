@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. - Walter Benjamin
+    ## Who sows virtue reaps honor. - Leonardo da Vinci
