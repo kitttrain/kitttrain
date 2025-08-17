@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Who sows virtue reaps honor. - Leonardo da Vinci
+    ## I cannot always control what goes on outside. But I can always control what goes on inside. - Wayne Dyer
