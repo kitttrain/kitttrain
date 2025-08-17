@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Action is the foundational key to all success. - Pablo Picasso
+    ## A real friend is one who walks in when the rest of the world walks out. - Walter Winchell
