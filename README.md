@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I cannot always control what goes on outside. But I can always control what goes on inside. - Wayne Dyer
+    ## You're never a loser until you quit trying. - Mike Ditka
