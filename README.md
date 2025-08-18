@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A real friend is one who walks in when the rest of the world walks out. - Walter Winchell
+    ## True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. - William Penn
