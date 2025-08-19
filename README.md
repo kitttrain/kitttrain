@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. - William Penn
+    ## Opportunity often comes disguised in the form of misfortune, or temporary defeat. - Napoleon Hill
