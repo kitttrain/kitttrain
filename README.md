@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Opportunity often comes disguised in the form of misfortune, or temporary defeat. - Napoleon Hill
+    ## Never mistake motion for action. - Ernest Hemingway
