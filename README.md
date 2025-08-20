@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto. - W. Clement Stone
+    ## Do what you can. Want what you have. Be who you are. - Forrest Church
