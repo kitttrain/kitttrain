@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Never mistake motion for action. - Ernest Hemingway
+    ## Study the past, if you would divine the future. - Confucius
