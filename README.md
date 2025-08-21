@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Do what you can. Want what you have. Be who you are. - Forrest Church
+    ## I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted. - Og Mandino
