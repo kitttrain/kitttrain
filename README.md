@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted. - Og Mandino
+    ## Always keep an open mind and a compassionate heart. - Phil Jackson
