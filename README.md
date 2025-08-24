@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always. - Oprah Winfrey
+    ## The important thing is this: to be able at any moment to sacrifice what we are for what we could become. - Charles Du Bos
