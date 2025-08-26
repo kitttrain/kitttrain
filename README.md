@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Get busy living or get busy dying. - Stephen King
+    ## Think for yourselves and let others enjoy the privilege to do so too. - Voltaire
