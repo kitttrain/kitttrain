@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Never find fault with the absent. - Alexander Pope
+    ## You can't stop the waves, but you can learn to surf. - Jon Kabat-Zinn
