@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Think for yourselves and let others enjoy the privilege to do so too. - Voltaire
+    ## The wisdom of the wise, and the experience of ages, may be preserved by quotation. - Isaac D'Israeli
