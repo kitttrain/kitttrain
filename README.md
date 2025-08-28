@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The wisdom of the wise, and the experience of ages, may be preserved by quotation. - Isaac D'Israeli
+    ## Time you enjoyed wasting was not wasted. - John Lennon
