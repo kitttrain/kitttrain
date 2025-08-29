@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Time you enjoyed wasting was not wasted. - John Lennon
+    ## To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future. - Plutarch
