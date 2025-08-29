@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A rolling stone gathers no moss. - Publilius Syrus
+    ## Things that were hard to bear are sweet to remember. - Seneca the Younger
