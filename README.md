@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Things that were hard to bear are sweet to remember. - Seneca the Younger
+    ## The world is round so that friendship may encircle it. - Pierre Teilhard de Chardin
