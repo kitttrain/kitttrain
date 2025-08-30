@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future. - Plutarch
+    ## False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports. - Richard Burton
