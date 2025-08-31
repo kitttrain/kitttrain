@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The world is round so that friendship may encircle it. - Pierre Teilhard de Chardin
+    ## You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless. - Caroline Myss
