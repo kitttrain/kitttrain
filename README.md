@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports. - Richard Burton
+    ## Knowledge without justice ought to be called cunning rather than wisdom. - Plato
