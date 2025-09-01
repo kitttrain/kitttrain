@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Knowledge without justice ought to be called cunning rather than wisdom. - Plato
+    ## Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. - Jonathan Swift
