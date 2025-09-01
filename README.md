@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Smile, breathe and go slowly. - Thích Nhất Hạnh
+    ## Should someone do good, let them do it again and again. They should develop this habit, for the accumulation of goodness brings joy. - The Buddha
