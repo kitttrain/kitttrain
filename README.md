@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless. - Caroline Myss
+    ## The truth of the matter is that you always know the right thing to do. The hard part is doing it. - Norman Schwarzkopf
