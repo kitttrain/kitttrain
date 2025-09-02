@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The truth of the matter is that you always know the right thing to do. The hard part is doing it. - Norman Schwarzkopf
+    ## It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. - Mignon McLaughlin
