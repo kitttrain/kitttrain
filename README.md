@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. - Jonathan Swift
+    ## Either I will find a way, or I will make one. - Philip Sidney
