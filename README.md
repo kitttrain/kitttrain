@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Should someone do good, let them do it again and again. They should develop this habit, for the accumulation of goodness brings joy. - The Buddha
+    ## Pick battles big enough to matter, small enough to win. - Jonathan Kozol
