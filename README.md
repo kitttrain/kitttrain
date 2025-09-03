@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Pick battles big enough to matter, small enough to win. - Jonathan Kozol
+    ## Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter. - Charles Lindbergh
