@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Life is what you make of it. Always has been, always will be. - Grandma Moses
+    ## In friendship as well as love, ignorance very often contributes more to our happiness than knowledge. - François de La Rochefoucauld
