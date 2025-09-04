@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You cannot step twice into the same river, for other waters are continually flowing in. - Heraclitus
+    ## In wartime, truth is so precious that she should always be attended by a bodyguard of lies. - Winston Churchill
