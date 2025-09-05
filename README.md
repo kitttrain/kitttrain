@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## In wartime, truth is so precious that she should always be attended by a bodyguard of lies. - Winston Churchill
+    ## Everything has beauty, but not everyone sees it. - Confucius
