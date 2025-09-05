@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The truest wisdom is a resolute determination. - Napoleon
+    ## We must not say every mistake is a foolish one. - Cicero
