@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Friendship is a very taxing and arduous form of leisure activity. - Mortimer J. Adler
+    ## Be faithful in small things because it is in them that your strength lies. - Mother Teresa
