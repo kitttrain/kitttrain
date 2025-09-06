@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We must not say every mistake is a foolish one. - Cicero
+    ## Love isn't something you find. Love is something that finds you. - Loretta Young
