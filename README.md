@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Everything has beauty, but not everyone sees it. - Confucius
+    ## It is only with the heart that one can see rightly, what is essential is invisible to the eye. - Antoine de Saint-Exupéry
