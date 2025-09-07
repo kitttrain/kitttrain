@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Love isn't something you find. Love is something that finds you. - Loretta Young
+    ## You can't shake hands with a clenched fist. - Indira Gandhi
