@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Be faithful in small things because it is in them that your strength lies. - Mother Teresa
+    ## The smallest act of kindness is worth more than the grandest intention. - Oscar Wilde
