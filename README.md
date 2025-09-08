@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You can't shake hands with a clenched fist. - Indira Gandhi
+    ## Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there? - Richard Bach
