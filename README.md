@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The smallest act of kindness is worth more than the grandest intention. - Oscar Wilde
+    ## If you smile when no one else is around, you really mean it. - Andy Rooney
