@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there? - Richard Bach
+    ## God gave us the gift of life; it is up to us to give ourselves the gift of living well. - Voltaire
