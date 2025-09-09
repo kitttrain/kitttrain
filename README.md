@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You cannot find yourself by going into the past. You can find yourself by coming into the present. - Eckhart Tolle
+    ## Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow. - Melody Beattie
