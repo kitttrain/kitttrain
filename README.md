@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you smile when no one else is around, you really mean it. - Andy Rooney
+    ## There surely is in human nature an inherent propensity to extract all the good out of all the evil. - Benjamin Haydon
