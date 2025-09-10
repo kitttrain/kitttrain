@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## God gave us the gift of life; it is up to us to give ourselves the gift of living well. - Voltaire
+    ## Quality means doing it right when no one is looking. - Henry Ford
