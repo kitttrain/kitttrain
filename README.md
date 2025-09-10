@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow. - Melody Beattie
+    ## He who knows that enough is enough will always have enough. - Laozi
