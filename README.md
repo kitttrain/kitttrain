@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## There surely is in human nature an inherent propensity to extract all the good out of all the evil. - Benjamin Haydon
+    ## Friends... they cherish one another's hopes. They are kind to one another's dreams. - Henry David Thoreau
