@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Quality means doing it right when no one is looking. - Henry Ford
+    ## When a thing is done, it's done. Don't look back. Look forward to your next objective. - George Marshall
