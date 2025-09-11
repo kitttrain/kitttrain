@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## He who knows that enough is enough will always have enough. - Laozi
+    ## Action is the foundational key to all success. - Pablo Picasso
