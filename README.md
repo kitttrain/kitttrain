@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Friends... they cherish one another's hopes. They are kind to one another's dreams. - Henry David Thoreau
+    ## Happiness mainly comes from our own attitude, rather than from external factors. - Dalai Lama
