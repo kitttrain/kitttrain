@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Happiness mainly comes from our own attitude, rather than from external factors. - Dalai Lama
+    ## Wrinkles should merely indicate where smiles have been. - Mark Twain
