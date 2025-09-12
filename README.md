@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Wrinkles should merely indicate where smiles have been. - Mark Twain
+    ## Good thoughts are no better than good dreams, unless they be executed. - Ralph Waldo Emerson
