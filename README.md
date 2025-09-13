@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Good thoughts are no better than good dreams, unless they be executed. - Ralph Waldo Emerson
+    ## Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. - Edith Wharton
