@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. - Edith Wharton
+    ## If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. - Colin Powell
