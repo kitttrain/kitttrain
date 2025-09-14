@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Genius unrefined resembles a flash of lightning, but wisdom is like the sun. - Franz Grillparzer
+    ## I always wanted to be somebody, but I should have been more specific. - Lily Tomlin
