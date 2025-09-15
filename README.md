@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I always wanted to be somebody, but I should have been more specific. - Lily Tomlin
+    ## The future is completely open, and we are writing it moment to moment. - Pema Chödrön
