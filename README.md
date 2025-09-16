@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The great myth of our times is that technology is communication. - Libby Larsen
+    ## Just as much as we see in others, we have in ourselves. - William Hazlitt
