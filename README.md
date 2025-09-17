@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Just as much as we see in others, we have in ourselves. - William Hazlitt
+    ## No one can make you feel inferior without your consent. - Eleanor Roosevelt
