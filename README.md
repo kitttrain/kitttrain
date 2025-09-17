@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Should someone do good, let them do it again and again. They should develop this habit, for the accumulation of goodness brings joy. - The Buddha
+    ## A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. - Denis Waitley
