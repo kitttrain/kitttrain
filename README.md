@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## No one can make you feel inferior without your consent. - Eleanor Roosevelt
+    ## A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune. - Horace
