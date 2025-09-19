@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune. - Horace
+    ## If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own. - Johann Wolfgang von Goethe
