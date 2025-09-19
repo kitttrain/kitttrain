@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. - Laozi
+    ## The secret of success is constancy to purpose. - Benjamin Disraeli
