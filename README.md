@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The secret of success is constancy to purpose. - Benjamin Disraeli
+    ## To hell with circumstances, I create opportunities. - Bruce Lee
