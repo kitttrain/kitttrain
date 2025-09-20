@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own. - Johann Wolfgang von Goethe
+    ## To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. - Muhammad Ali
