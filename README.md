@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## To hell with circumstances, I create opportunities. - Bruce Lee
+    ## Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation. - Samuel Richardson
