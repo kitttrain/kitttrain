@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation. - Samuel Richardson
+    ## If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. - Holly Near
