@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. - Holly Near
+    ## Just because something doesn't do what you planned it to do doesn't mean it's useless. - Thomas Edison
