@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Just because something doesn't do what you planned it to do doesn't mean it's useless. - Thomas Edison
+    ## The world is round and the place which may seem like the end may also be the beginning. - Ivy Baker Priest
