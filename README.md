@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Knowing is not enough; we must apply! - Johann Wolfgang von Goethe
+    ## An ant on the move does more than a dozing ox - Laozi
