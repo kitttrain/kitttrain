@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## An ant on the move does more than a dozing ox - Laozi
+    ## A single rose can be my garden... a single friend, my world. - Leo Buscaglia
