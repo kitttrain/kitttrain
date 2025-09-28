@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A single rose can be my garden... a single friend, my world. - Leo Buscaglia
+    ## Men are disturbed not by things, but by the view which they take of them. - Epictetus
