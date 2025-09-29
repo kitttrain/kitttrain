@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Men are disturbed not by things, but by the view which they take of them. - Epictetus
+    ## We aim above the mark to hit the mark. - Ralph Waldo Emerson
