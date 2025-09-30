@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We aim above the mark to hit the mark. - Ralph Waldo Emerson
+    ## We shall never know all the good that a simple smile can do. - Mother Teresa
