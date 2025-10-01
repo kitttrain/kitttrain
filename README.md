@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We shall never know all the good that a simple smile can do. - Mother Teresa
+    ## Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak. - Thomas Carlyle
