@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak. - Thomas Carlyle
+    ## Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats. - Howard H. Aiken
