@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats. - Howard H. Aiken
+    ## Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind. - Plato
