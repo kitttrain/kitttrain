@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind. - Plato
+    ## He is no fool who gives what he cannot keep to gain what he cannot lose. - Jim Elliot
