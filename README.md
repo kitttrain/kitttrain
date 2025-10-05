@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## He is no fool who gives what he cannot keep to gain what he cannot lose. - Jim Elliot
+    ## Stay committed to your decisions, but stay flexible in your approach. - Tony Robbins
