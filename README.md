@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. - Ravi Zacharias
+    ## If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness. - Vusi Mahlasela
