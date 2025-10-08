@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness. - Vusi Mahlasela
+    ## To be happy is to be able to become aware of oneself without fright. - Walter Benjamin
