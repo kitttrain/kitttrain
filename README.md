@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## To be happy is to be able to become aware of oneself without fright. - Walter Benjamin
+    ## To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom. - Confucius
