@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Myths which are believed in tend to become true. - George Orwell
+    ## Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! - Richard Bach
