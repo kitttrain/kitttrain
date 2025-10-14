@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! - Richard Bach
+    ## Small opportunities are often the beginning of great enterprises. - Demosthenes
