@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Small opportunities are often the beginning of great enterprises. - Demosthenes
+    ## Some people go to priests; others to poetry; I to my friends. - Virginia Woolf
