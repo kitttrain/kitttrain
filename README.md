@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Some people go to priests; others to poetry; I to my friends. - Virginia Woolf
+    ## It is one of the blessings of old friends that you can afford to be stupid with them. - Ralph Waldo Emerson
