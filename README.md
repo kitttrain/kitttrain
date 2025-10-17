@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## It is one of the blessings of old friends that you can afford to be stupid with them. - Ralph Waldo Emerson
+    ## Think as a wise man but communicate in the language of the people. - William Butler Yeats
