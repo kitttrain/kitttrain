@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Think as a wise man but communicate in the language of the people. - William Butler Yeats
+    ## Truth, and goodness, and beauty are but different faces of the same all. - Ralph Waldo Emerson
