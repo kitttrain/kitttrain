@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The man who trusts men will make fewer mistakes than he who distrusts them. - Camillo Benso, Count of Cavour
+    ## Only when we are no longer afraid do we begin to live. - Dorothy Thompson
