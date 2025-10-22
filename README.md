@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The doors of wisdom are never shut. - Benjamin Franklin
+    ## The pine stays green in winter... wisdom in hardship. - Norman Douglas
