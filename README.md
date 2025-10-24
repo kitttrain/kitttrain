@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else. - Sam Walton
+    ## The more you care, the stronger you can be. - Jim Rohn
