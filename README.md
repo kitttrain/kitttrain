@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The more you care, the stronger you can be. - Jim Rohn
+    ## Formula for success: under promise and over deliver. - Tom Peters
