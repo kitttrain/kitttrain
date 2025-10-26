@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Formula for success: under promise and over deliver. - Tom Peters
+    ## To acquire knowledge, one must study; but to acquire wisdom, one must observe. - Marilyn vos Savant
