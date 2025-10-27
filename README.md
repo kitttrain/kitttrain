@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## To acquire knowledge, one must study; but to acquire wisdom, one must observe. - Marilyn vos Savant
+    ## Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more. - Nikola Tesla
