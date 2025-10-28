@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more. - Nikola Tesla
+    ## Change your thoughts and you change your world. - Norman Vincent Peale
