@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Change your thoughts and you change your world. - Norman Vincent Peale
+    ## Trying to define yourself is like trying to bite your own teeth. - Alan Watts
