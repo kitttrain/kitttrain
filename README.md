@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Trying to define yourself is like trying to bite your own teeth. - Alan Watts
+    ## Think for yourselves and let others enjoy the privilege to do so too. - Voltaire
