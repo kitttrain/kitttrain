@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Think for yourselves and let others enjoy the privilege to do so too. - Voltaire
+    ## If you wish to be a writer, write. - Epictetus
