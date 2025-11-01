@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you wish to be a writer, write. - Epictetus
+    ## Well begun is half done. - Aristotle
