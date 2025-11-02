@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Well begun is half done. - Aristotle
+    ## I always wanted to be somebody, but I should have been more specific. - Lily Tomlin
