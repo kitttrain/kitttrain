@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I always wanted to be somebody, but I should have been more specific. - Lily Tomlin
+    ## Reason and free inquiry are the only effectual agents against error. - Thomas Jefferson
