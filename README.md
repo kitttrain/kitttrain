@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## In wisdom gathered over time I have found that every experience is a form of exploration. - Ansel Adams
+    ## A good decision is based on knowledge and not on numbers. - Plato
