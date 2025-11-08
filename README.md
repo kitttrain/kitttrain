@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The important thing is this: to be able at any moment to sacrifice what we are for what we could become. - Charles Du Bos
+    ## A house divided against itself cannot stand. - Abraham Lincoln
