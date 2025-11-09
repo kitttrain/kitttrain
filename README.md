@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A house divided against itself cannot stand. - Abraham Lincoln
+    ## Many sophisticated, intelligent people lack wisdom and common sense. - Joyce Meyer
