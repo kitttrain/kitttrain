@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. - Michel de Montaigne
+    ## Whoever doesn't flare up at someone who's angry wins a battle hard to win. - The Buddha
