@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Whoever doesn't flare up at someone who's angry wins a battle hard to win. - The Buddha
+    ## I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. - The Buddha
