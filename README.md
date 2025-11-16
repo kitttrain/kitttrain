@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Never promise more than you can perform. - Publilius Syrus
+    ## Know how to listen, and you will profit even from those who talk badly. - Plutarch
