@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Know how to listen, and you will profit even from those who talk badly. - Plutarch
+    ## The only Zen you find on the tops of mountains is the Zen you bring up there. - Robert M. Pirsig
