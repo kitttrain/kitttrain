@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Beware of missing chances; otherwise it may be altogether too late someday. - Franz Liszt
+    ## He who lives in harmony with himself lives in harmony with the universe. - Marcus Aurelius
