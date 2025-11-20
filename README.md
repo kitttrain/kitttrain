@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## He who lives in harmony with himself lives in harmony with the universe. - Marcus Aurelius
+    ## The fewer rules a coach has, the fewer rules there are for players to break. - John Madden
