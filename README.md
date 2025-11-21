@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The fewer rules a coach has, the fewer rules there are for players to break. - John Madden
+    ## Joy is what happens to us when we allow ourselves to recognize how good things really are. - Marianne Williamson
