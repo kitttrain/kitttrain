@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Joy is what happens to us when we allow ourselves to recognize how good things really are. - Marianne Williamson
+    ## The only way to make sense out of change is to plunge into it, move with it, and join the dance. - Alan Watts
