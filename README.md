@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. - Diogenes
+    ## Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech. - Benjamin Franklin
