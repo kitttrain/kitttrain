@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech. - Benjamin Franklin
+    ## Time you enjoyed wasting was not wasted. - John Lennon
