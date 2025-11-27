@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Time you enjoyed wasting was not wasted. - John Lennon
+    ## I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia. - Woody Allen
