@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Nothing is softer or more flexible than water, yet nothing can resist it. - Laozi
+    ## Difficulties increase the nearer we get to the goal. - Johann Wolfgang von Goethe
