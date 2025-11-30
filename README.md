@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Difficulties increase the nearer we get to the goal. - Johann Wolfgang von Goethe
+    ## Argue for your limitations, and sure enough they're yours. - Richard Bach
