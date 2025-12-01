@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Argue for your limitations, and sure enough they're yours. - Richard Bach
+    ## The amount of happiness that you have depends on the amount of freedom you have in your heart. - Thích Nhất Hạnh
