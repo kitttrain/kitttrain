@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The amount of happiness that you have depends on the amount of freedom you have in your heart. - Thích Nhất Hạnh
+    ## Along with success comes a reputation for wisdom. - Euripides
