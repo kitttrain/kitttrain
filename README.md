@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Along with success comes a reputation for wisdom. - Euripides
+    ## A friend may well be reckoned the masterpiece of nature. - Ralph Waldo Emerson
