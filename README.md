@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A friend may well be reckoned the masterpiece of nature. - Ralph Waldo Emerson
+    ## Quality means doing it right when no one is looking. - Henry Ford
