@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Quality means doing it right when no one is looking. - Henry Ford
+    ## You cannot have what you do not want. - John Acosta
