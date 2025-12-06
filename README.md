@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You cannot have what you do not want. - John Acosta
+    ## The superior man is satisfied and composed; the mean man is always full of distress. - Confucius
