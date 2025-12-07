@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The superior man is satisfied and composed; the mean man is always full of distress. - Confucius
+    ## Reviewing what you have learned and learning anew, you are fit to be a teacher. - Confucius
