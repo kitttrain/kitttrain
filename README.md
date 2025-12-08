@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Reviewing what you have learned and learning anew, you are fit to be a teacher. - Confucius
+    ## There is no retirement for an artist, it's your way of living so there is no end to it. - Henry Moore
