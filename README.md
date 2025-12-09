@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## There is no retirement for an artist, it's your way of living so there is no end to it. - Henry Moore
+    ## As a cure for worrying, work is better than whisky. - Thomas Edison
