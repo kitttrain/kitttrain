@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## As a cure for worrying, work is better than whisky. - Thomas Edison
+    ## Should a person do good, let him do it again and again. Let him find pleasure therein, for blissful is the accumulation of good. - The Buddha
