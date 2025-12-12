@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A good head and a good heart are always a formidable combination. - Nelson Mandela
+    ## Technology is teaching us to be human again. - Simon Mainwaring
