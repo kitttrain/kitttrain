@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. - Confucius
+    ## The first step to getting the things you want out of life is this: decide what you want. - Ben Stein
