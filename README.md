@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The first step to getting the things you want out of life is this: decide what you want. - Ben Stein
+    ## All experiences are preceded by mind, having mind as their master, created by mind. - The Buddha
