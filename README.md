@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## All experiences are preceded by mind, having mind as their master, created by mind. - The Buddha
+    ## It is more shameful to distrust our friends than to be deceived by them. - Confucius
