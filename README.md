@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## It is more shameful to distrust our friends than to be deceived by them. - Confucius
+    ## The best cure for the body is a quiet mind. - Napoleon
