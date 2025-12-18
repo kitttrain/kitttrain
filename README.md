@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The best cure for the body is a quiet mind. - Napoleon
+    ## A man is not old as long as he is seeking something. - Edmond Rostand
