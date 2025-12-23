@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life. - Joseph Prince
+    ## By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. - The Buddha
