@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. - The Buddha
+    ## There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will. - Epictetus
