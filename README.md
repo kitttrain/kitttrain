@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will. - Epictetus
+    ## Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. - George Santayana
