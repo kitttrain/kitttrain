@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. - George Santayana
+    ## To find a man's true character, play golf with him. - P. G. Wodehouse
