@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## To find a man's true character, play golf with him. - P. G. Wodehouse
+    ## The smallest deed is better than the greatest intention. - John Burroughs
