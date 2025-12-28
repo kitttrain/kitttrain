@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The smallest deed is better than the greatest intention. - John Burroughs
+    ## All things change; nothing perishes. - Ovid
