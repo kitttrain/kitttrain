@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. - Steve Jobs
+    ## Until you make peace with who you are, you'll never be content with what you have. - Doris Mortman
