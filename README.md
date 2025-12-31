@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Until you make peace with who you are, you'll never be content with what you have. - Doris Mortman
+    ## Setting an example is not the main means of influencing another, it is the only means. - Albert Einstein
