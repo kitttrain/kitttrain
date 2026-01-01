@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Setting an example is not the main means of influencing another, it is the only means. - Albert Einstein
+    ## Successful people ask better questions, and as a result, they get better answers. - Tony Robbins
