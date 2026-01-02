@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Successful people ask better questions, and as a result, they get better answers. - Tony Robbins
+    ## Business, you know, may bring you money, but friendship hardly ever does. - Jane Austen
