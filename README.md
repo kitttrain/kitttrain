@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Business, you know, may bring you money, but friendship hardly ever does. - Jane Austen
+    ## There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. - Wayne Dyer
