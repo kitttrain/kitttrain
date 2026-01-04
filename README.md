@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. - Wayne Dyer
+    ## As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed. - The Buddha
