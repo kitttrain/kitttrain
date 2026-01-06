@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Before God we are all equally wise - and equally foolish. - Albert Einstein
+    ## A leader is one who knows the way, goes the way, and shows the way. - John C. Maxwell
