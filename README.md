@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A leader is one who knows the way, goes the way, and shows the way. - John C. Maxwell
+    ## The art challenges the technology, and the technology inspires the art. - John Lasseter
