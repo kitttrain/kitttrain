@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The art challenges the technology, and the technology inspires the art. - John Lasseter
+    ## You've got to go out on a limb sometimes because that's where the fruit is. - Will Rogers
