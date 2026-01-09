@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You've got to go out on a limb sometimes because that's where the fruit is. - Will Rogers
+    ## Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. - Tony Robbins
