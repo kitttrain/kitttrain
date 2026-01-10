@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. - Tony Robbins
+    ## Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best. - Theodore Isaac Rubin
