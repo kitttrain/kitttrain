@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best. - Theodore Isaac Rubin
+    ## Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. - Robert Graves
