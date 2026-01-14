@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Knowing is not enough; we must apply! - Johann Wolfgang von Goethe
+    ## One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. - Elbert Hubbard
