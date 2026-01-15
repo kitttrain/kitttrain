@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. - Elbert Hubbard
+    ## Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing. - Aristotle
