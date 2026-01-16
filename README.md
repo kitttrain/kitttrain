@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing. - Aristotle
+    ## Peace cannot be kept by force. It can only be achieved by understanding. - Albert Einstein
