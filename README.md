@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Peace cannot be kept by force. It can only be achieved by understanding. - Albert Einstein
+    ## Everything that irritates us about others can lead us to a better understanding of ourselves. - Carl Jung
