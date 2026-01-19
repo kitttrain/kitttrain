@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind. - Albert Schweitzer
+    ## As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed. - The Buddha
