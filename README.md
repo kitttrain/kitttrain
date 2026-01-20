@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed. - The Buddha
+    ## A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. - François de La Rochefoucauld
