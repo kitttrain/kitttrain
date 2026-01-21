@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. - François de La Rochefoucauld
+    ## If you have knowledge, let others light their candles in it. - Margaret Fuller
