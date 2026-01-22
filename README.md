@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you have knowledge, let others light their candles in it. - Margaret Fuller
+    ## Yeah, we all shine on, like the moon, and the stars, and the sun. - John Lennon
