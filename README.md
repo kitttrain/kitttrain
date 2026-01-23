@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Yeah, we all shine on, like the moon, and the stars, and the sun. - John Lennon
+    ## Good, better, best. Never let it rest. ‘Til your good is better and your better is best. - Jerome
