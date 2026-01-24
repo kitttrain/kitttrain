@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Good, better, best. Never let it rest. ‘Til your good is better and your better is best. - Jerome
+    ## I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me. - Woody Allen
