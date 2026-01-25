@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me. - Woody Allen
+    ## Logic will get you from A to B. Imagination will take you everywhere. - Albert Einstein
