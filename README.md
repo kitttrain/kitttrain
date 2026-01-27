@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## What do we live for, if it is not to make life less difficult for each other? - George Eliot
+    ## I do not know the American gentleman, god forgive me for putting two such words together. - Charles Dickens
