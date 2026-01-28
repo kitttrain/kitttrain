@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I do not know the American gentleman, god forgive me for putting two such words together. - Charles Dickens
+    ## Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars. - Henry van Dyke Jr.
