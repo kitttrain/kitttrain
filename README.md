@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Joy is the best makeup. - Anne Lamott
+    ## You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back? - W. Clement Stone
