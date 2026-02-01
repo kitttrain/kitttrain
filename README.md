@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. - Reinhold Niebuhr
+    ## The biggest room in the world is room for improvement. - Helmut Schmidt
