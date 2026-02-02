@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The biggest room in the world is room for improvement. - Helmut Schmidt
+    ## We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life. - James Freeman Clarke
