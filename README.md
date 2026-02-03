@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life. - James Freeman Clarke
+    ## Friendship is a very taxing and arduous form of leisure activity. - Mortimer J. Adler
