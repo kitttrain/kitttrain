@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I've missed more than 9000 shots in my career. I've lost almost 300 games. 26 times, I've been trusted to take the game winning shot and missed. I've failed over and over and over again in my life. And that is why I succeed. - Michael Jordan
+    ## A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love. - Basil of Caesarea
