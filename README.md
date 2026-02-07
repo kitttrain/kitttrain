@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love. - Basil of Caesarea
+    ## I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted. - Og Mandino
