@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted. - Og Mandino
+    ## I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. - Susan Orlean
