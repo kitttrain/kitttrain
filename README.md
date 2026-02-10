@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. - Susan Orlean
+    ## Love all, trust a few, do wrong to none. - William Shakespeare
