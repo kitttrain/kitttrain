@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Love all, trust a few, do wrong to none. - William Shakespeare
+    ## To be tested is good. The challenged life may be the best therapist. - Gail Sheehy
