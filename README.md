@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## To be tested is good. The challenged life may be the best therapist. - Gail Sheehy
+    ## A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do. - Chuck Norris
