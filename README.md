@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do. - Chuck Norris
+    ## Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity. - Robert Louis Stevenson
