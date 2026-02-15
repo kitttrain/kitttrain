@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Being entirely honest with oneself is a good exercise. - Sigmund Freud
+    ## The most formidable weapon against errors of every kind is reason. - Thomas Paine
