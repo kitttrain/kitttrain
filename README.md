@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## It is only with the heart that one can see rightly, what is essential is invisible to the eye. - Antoine de Saint-Exupéry
+    ## Formula for success: under promise and over deliver. - Tom Peters
