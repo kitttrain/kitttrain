@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Formula for success: under promise and over deliver. - Tom Peters
+    ## Nothing will work unless you do. - Maya Angelou
