@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Nothing will work unless you do. - Maya Angelou
+    ## Follow your instincts. That is where true wisdom manifests itself. - Oprah Winfrey
