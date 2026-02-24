@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you want to go east, don't go west. - Ramakrishna
+    ## That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing. - Martin Luther King Jr.
