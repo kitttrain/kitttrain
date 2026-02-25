@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing. - Martin Luther King Jr.
+    ## For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone. - Audrey Hepburn
