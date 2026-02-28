@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Cleverness is not wisdom. - Euripides
+    ## Love and friendship exclude each other. - Jean de La Bruyère
