@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Where there is great love, there are always miracles. - Willa Cather
+    ## When we are no longer able to change a situation - we are challenged to change ourselves. - Viktor Frankl
