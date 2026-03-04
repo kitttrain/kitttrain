@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## When we are no longer able to change a situation - we are challenged to change ourselves. - Viktor Frankl
+    ## Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. - George Santayana
