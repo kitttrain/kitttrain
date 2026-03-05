@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. - George Santayana
+    ## The key to growth is the introduction of higher dimensions of consciousness into our awareness. - Laozi
