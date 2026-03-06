@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The key to growth is the introduction of higher dimensions of consciousness into our awareness. - Laozi
+    ## Living at risk is jumping off the cliff and building your wings on the way down. - Ray Bradbury
