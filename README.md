@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Living at risk is jumping off the cliff and building your wings on the way down. - Ray Bradbury
+    ## They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. - The Buddha
