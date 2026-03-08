@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. - The Buddha
+    ## What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people. - Daisaku Ikeda
