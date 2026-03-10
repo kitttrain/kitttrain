@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The lure of the distant and the difficult is deceptive. The great opportunity is where you are. - John Burroughs
+    ## If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. - Vince Lombardi
