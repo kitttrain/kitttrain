@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. - Vince Lombardi
+    ## If you fell down yesterday, stand up today. - H. G. Wells
