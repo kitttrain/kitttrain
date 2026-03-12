@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you fell down yesterday, stand up today. - H. G. Wells
+    ## Love is blind; friendship closes its eyes. - Friedrich Nietzsche
