@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Love is blind; friendship closes its eyes. - Friedrich Nietzsche
+    ## Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. - Kahlil Gibran
