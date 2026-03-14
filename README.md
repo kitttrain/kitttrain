@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. - Kahlil Gibran
+    ## The years teach much which the days never know. - Ralph Waldo Emerson
