@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The years teach much which the days never know. - Ralph Waldo Emerson
+    ## It is the quality of our work which will please God, not the quantity. - Mahatma Gandhi
