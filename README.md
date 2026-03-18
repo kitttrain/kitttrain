@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever. - Amy Tan
+    ## Coming together is a beginning; keeping together is progress; working together is success. - Edward Everett Hale
