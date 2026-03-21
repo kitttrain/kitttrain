@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## There are two kinds of failures: those who thought and never did, and those who did and never thought. - Laurence J. Peter
+    ## The fewer rules a coach has, the fewer rules there are for players to break. - John Madden
