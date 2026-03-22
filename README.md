@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The fewer rules a coach has, the fewer rules there are for players to break. - John Madden
+    ## Do not wait for leaders; do it alone, person to person. - Mother Teresa
