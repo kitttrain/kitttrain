@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Do not wait for leaders; do it alone, person to person. - Mother Teresa
+    ## Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. - Anaïs Nin
