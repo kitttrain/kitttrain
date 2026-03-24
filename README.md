@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. - Anaïs Nin
+    ## People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. - Dalai Lama
