@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. - Dalai Lama
+    ## A true friend is one who overlooks your failures and tolerates your success! - Doug Larson
