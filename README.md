@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A true friend is one who overlooks your failures and tolerates your success! - Doug Larson
+    ## Divide each difficulty into as many parts as is feasible and necessary to resolve it. - René Descartes
