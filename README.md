@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Divide each difficulty into as many parts as is feasible and necessary to resolve it. - René Descartes
+    ## I will prepare and someday my chance will come. - Abraham Lincoln
