@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I will prepare and someday my chance will come. - Abraham Lincoln
+    ## Should a person do good, let him do it again and again. Let him find pleasure therein, for blissful is the accumulation of good. - The Buddha
