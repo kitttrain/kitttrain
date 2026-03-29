@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Should a person do good, let him do it again and again. Let him find pleasure therein, for blissful is the accumulation of good. - The Buddha
+    ## I don't believe in failure. It's not failure if you enjoyed the process. - Oprah Winfrey
