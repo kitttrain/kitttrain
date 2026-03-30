@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I don't believe in failure. It's not failure if you enjoyed the process. - Oprah Winfrey
+    ## Don't look back. Something might be gaining on you. - Satchel Paige
