@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Don't look back. Something might be gaining on you. - Satchel Paige
+    ## Kind words do not cost much. Yet they accomplish much. - Blaise Pascal
