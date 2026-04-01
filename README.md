@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Kind words do not cost much. Yet they accomplish much. - Blaise Pascal
+    ## You can only grow if you're willing to feel awkward and uncomfortable when you try something new. - Brian Tracy
