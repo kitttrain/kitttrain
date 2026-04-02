@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You can only grow if you're willing to feel awkward and uncomfortable when you try something new. - Brian Tracy
+    ## At the center of your being, you have the answer; you know who you are, and you know what you want. - Laozi
