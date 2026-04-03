@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## At the center of your being, you have the answer; you know who you are, and you know what you want. - Laozi
+    ## Nature gave us one tongue and two ears so we could hear twice as much as we speak. - Epictetus
