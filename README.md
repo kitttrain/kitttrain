@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Nature gave us one tongue and two ears so we could hear twice as much as we speak. - Epictetus
+    ## The greatest gift of life is friendship, and I have received it. - Hubert Humphrey
