@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. - Elizabeth Kapu'uwailani Lindsey
+    ## Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning. - Gloria Steinem
