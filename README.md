@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Three things in human life are important. The first is to be kind. The second is to be kind. The third is to be kind. - Henry James
+    ## All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. - Winston Churchill
