@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If I know what love is, it is because of you. - Hermann Hesse
+    ## A wise man can learn more from a foolish question than a fool can learn from a wise answer. - Bruce Lee
