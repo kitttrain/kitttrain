@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A wise man can learn more from a foolish question than a fool can learn from a wise answer. - Bruce Lee
+    ## Our lives are a sum total of the choices we have made. - Wayne Dyer
