@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Our lives are a sum total of the choices we have made. - Wayne Dyer
+    ## Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather. - John Ruskin
