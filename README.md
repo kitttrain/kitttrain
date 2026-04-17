@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The longer we dwell on our misfortunes, the greater is their power to harm us. - Voltaire
+    ## By accepting yourself and being fully what you are, your presence can make others happy. - Jane Roberts
