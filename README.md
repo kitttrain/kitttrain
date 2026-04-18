@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## By accepting yourself and being fully what you are, your presence can make others happy. - Jane Roberts
+    ## We never understand how little we need in this world until we know the loss of it. - J. M. Barrie
