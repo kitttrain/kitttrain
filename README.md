@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody. - Herbert Bayard Swope
+    ## Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves. - The Buddha
