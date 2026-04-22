@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves. - The Buddha
+    ## Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has. - Margaret Mead
