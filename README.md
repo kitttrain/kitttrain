@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has. - Margaret Mead
+    ## A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be. - Wayne Gretzky
