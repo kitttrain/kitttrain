@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Mistakes are always forgivable, if one has the courage to admit them. - Bruce Lee
+    ## Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry. - Earl Monroe
