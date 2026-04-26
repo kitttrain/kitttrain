@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry. - Earl Monroe
+    ## We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone. - Orson Welles
