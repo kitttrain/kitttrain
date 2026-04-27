@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone. - Orson Welles
+    ## Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. - Steve Jobs
