@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. - Steve Jobs
+    ## Formula for success: under promise and over deliver. - Tom Peters
