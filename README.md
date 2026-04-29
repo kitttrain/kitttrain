@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Formula for success: under promise and over deliver. - Tom Peters
+    ## Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. - Thomas à Kempis
