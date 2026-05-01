@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You must welcome change as the rule but not as your ruler. - Denis Waitley
+    ## Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. - George Washington
