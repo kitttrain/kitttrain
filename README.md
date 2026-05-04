@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## It's easier to resist at the beginning than at the end. - Leonardo da Vinci
+    ## Only I can change my life. No one can do it for me. - Carol Burnett
