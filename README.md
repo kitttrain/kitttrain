@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. - Stephen Hawking
+    ## The world is round and the place which may seem like the end may also be the beginning. - Ivy Baker Priest
