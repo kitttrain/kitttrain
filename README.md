@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The world is round and the place which may seem like the end may also be the beginning. - Ivy Baker Priest
+    ## It is a miracle that curiosity survives formal education. - Albert Einstein
