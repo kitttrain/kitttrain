@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The greatest way to live with honor in this world is to be what we pretend to be. - Socrates
+    ## Important principles may, and must, be inflexible. - Abraham Lincoln
