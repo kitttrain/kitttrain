@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Important principles may, and must, be inflexible. - Abraham Lincoln
+    ## If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. - Rachel Carson
