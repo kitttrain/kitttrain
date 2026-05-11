@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. - Rachel Carson
+    ## Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. - Laozi
