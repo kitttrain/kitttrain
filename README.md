@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. - Laozi
+    ## Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. - Edith Wharton
