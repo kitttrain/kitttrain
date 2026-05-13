@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. - Edith Wharton
+    ## There is nothing on this earth more to be prized than true friendship. - Thomas Aquinas
