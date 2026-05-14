@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## There is nothing on this earth more to be prized than true friendship. - Thomas Aquinas
+    ## A prudent question is one half of wisdom. - Francis Bacon
