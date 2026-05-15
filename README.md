@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A prudent question is one half of wisdom. - Francis Bacon
+    ## Go put your creed into the deed. Nor speak with double tongue. - Ralph Waldo Emerson
