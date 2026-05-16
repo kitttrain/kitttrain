@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Go put your creed into the deed. Nor speak with double tongue. - Ralph Waldo Emerson
+    ## All know the way; few actually walk it. - Bodhidharma
