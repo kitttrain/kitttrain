@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## All know the way; few actually walk it. - Bodhidharma
+    ## A little knowledge that acts is worth infinitely more than much knowledge that is idle. - Kahlil Gibran
