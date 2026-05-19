@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all. - Dale Carnegie
+    ## The only limit to our realization of tomorrow will be our doubts of today. - Franklin D. Roosevelt
