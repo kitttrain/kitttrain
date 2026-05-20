@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The only limit to our realization of tomorrow will be our doubts of today. - Franklin D. Roosevelt
+    ## Truth, and goodness, and beauty are but different faces of the same all. - Ralph Waldo Emerson
