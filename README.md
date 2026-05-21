@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Truth, and goodness, and beauty are but different faces of the same all. - Ralph Waldo Emerson
+    ## Trust only movement. Life happens at the level of events, not of words. Trust movement. - Alfred Adler
