@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Trust only movement. Life happens at the level of events, not of words. Trust movement. - Alfred Adler
+    ## Keep your eyes on the stars and your feet on the ground. - Theodore Roosevelt
