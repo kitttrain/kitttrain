@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be. - Thomas Jefferson
+    ## The final proof of greatness lies in being able to endure criticism without resentment. - Elbert Hubbard
