@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The final proof of greatness lies in being able to endure criticism without resentment. - Elbert Hubbard
+    ## When the world is so complicated, the simple gift of friendship is within all of our hands. - Maria Shriver
