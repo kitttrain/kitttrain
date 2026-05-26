@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## When the world is so complicated, the simple gift of friendship is within all of our hands. - Maria Shriver
+    ## A man who doesn't trust himself can never really trust anyone else. - Jean François Paul de Gondi
