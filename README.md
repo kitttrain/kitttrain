@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A man who doesn't trust himself can never really trust anyone else. - Jean François Paul de Gondi
+    ## Just because something doesn't do what you planned it to do doesn't mean it's useless. - Thomas Edison
