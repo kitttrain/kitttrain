@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Just because something doesn't do what you planned it to do doesn't mean it's useless. - Thomas Edison
+    ## I can't believe that God put us on this earth to be ordinary. - Lou Holtz
