@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I can't believe that God put us on this earth to be ordinary. - Lou Holtz
+    ## The truest wisdom is a resolute determination. - Napoleon
