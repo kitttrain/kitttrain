@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The truest wisdom is a resolute determination. - Napoleon
+    ## I have always thought the actions of men the best interpreters of their thoughts. - John Locke
