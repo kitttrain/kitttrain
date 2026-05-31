@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I have always thought the actions of men the best interpreters of their thoughts. - John Locke
+    ## The fall of dropping water wears away the Stone. - Lucretius
