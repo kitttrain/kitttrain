@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The fall of dropping water wears away the Stone. - Lucretius
+    ## The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back. - Seneca the Younger
