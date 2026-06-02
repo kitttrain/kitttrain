@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back. - Seneca the Younger
+    ## If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible. - Epictetus
