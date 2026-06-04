@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Setting goals is the first step in turning the invisible into the visible. - Tony Robbins
+    ## Nature takes away any faculty that is not used. - William Inge
