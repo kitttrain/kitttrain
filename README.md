@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Nature takes away any faculty that is not used. - William Inge
+    ## I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever. - Amy Tan
