@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever. - Amy Tan
+    ## You always have two choices: your commitment versus your fear. - Sammy Davis Jr.
