@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You always have two choices: your commitment versus your fear. - Sammy Davis Jr.
+    ## No act of kindness, no matter how small, is ever wasted. - Aesop
