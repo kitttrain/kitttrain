@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## No act of kindness, no matter how small, is ever wasted. - Aesop
+    ## How many cares one loses when one decides not to be something but to be someone. - Coco Chanel
