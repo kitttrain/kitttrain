@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## How many cares one loses when one decides not to be something but to be someone. - Coco Chanel
+    ## Always tell the truth. That way, you don't have to remember what you said. - Mark Twain
