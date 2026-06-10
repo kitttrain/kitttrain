@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Always tell the truth. That way, you don't have to remember what you said. - Mark Twain
+    ## Be sure you put your feet in the right place, then stand firm. - Abraham Lincoln
