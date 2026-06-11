@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Be sure you put your feet in the right place, then stand firm. - Abraham Lincoln
+    ## Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. - Kahlil Gibran
