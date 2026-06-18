@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The farther backward you can look, the farther forward you can see. - Winston Churchill
+    ## The fall of dropping water wears away the Stone. - Lucretius
