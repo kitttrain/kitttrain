@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion. - Elon Musk
+    ## The person born with a talent they are meant to use will find their greatest happiness in using it. - Johann Wolfgang von Goethe
