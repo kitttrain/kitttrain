@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The person born with a talent they are meant to use will find their greatest happiness in using it. - Johann Wolfgang von Goethe
+    ## Of all possessions a friend is the most precious. - Herodotus
