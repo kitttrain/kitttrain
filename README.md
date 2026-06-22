@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Of all possessions a friend is the most precious. - Herodotus
+    ## But at any rate, the point is that God is what nobody admits to being, and everybody really is. - Alan Watts
