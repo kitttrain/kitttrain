@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## But at any rate, the point is that God is what nobody admits to being, and everybody really is. - Alan Watts
+    ## Your talent is God's gift to you. What you do with it is your gift back to God. - Leo Buscaglia
