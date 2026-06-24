@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Your talent is God's gift to you. What you do with it is your gift back to God. - Leo Buscaglia
+    ## It all depends on how we look at things, and not how they are in themselves. - Carl Jung
