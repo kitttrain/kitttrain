@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## It all depends on how we look at things, and not how they are in themselves. - Carl Jung
+    ## The years teach much which the days never know. - Ralph Waldo Emerson
