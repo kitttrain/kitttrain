@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The years teach much which the days never know. - Ralph Waldo Emerson
+    ## Pick battles big enough to matter, small enough to win. - Jonathan Kozol
