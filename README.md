@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Pick battles big enough to matter, small enough to win. - Jonathan Kozol
+    ## The smallest act of kindness is worth more than the grandest intention. - Oscar Wilde
