@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The smallest act of kindness is worth more than the grandest intention. - Oscar Wilde
+    ## Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. - Ted Williams
