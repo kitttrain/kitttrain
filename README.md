@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. - Ted Williams
+    ## Do I speak at the right time, or not? Do I speak of facts, or not? Do I speak gently or harshly? Do I speak profitable words or not? Do I speak with a kindly heart, or inwardly malicious? - The Buddha
