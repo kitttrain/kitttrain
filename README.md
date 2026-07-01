@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do. - Pope John XXIII
+    ## I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want. - Muhammad Ali
