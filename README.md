@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I never think of the future. It comes soon enough. - Albert Einstein
+    ## If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. - Morris West
