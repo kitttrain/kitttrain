@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Friendship is Love without his wings! - Lord Byron
+    ## Whatever has the nature of arising has the nature of ceasing. - The Buddha
