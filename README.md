@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Whatever has the nature of arising has the nature of ceasing. - The Buddha
+    ## The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same. - Carlos Castaneda
