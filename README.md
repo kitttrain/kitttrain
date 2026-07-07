@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same. - Carlos Castaneda
+    ## Good advice is always certain to be ignored, but that's no reason not to give it. - Agatha Christie
