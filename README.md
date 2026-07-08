@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Good advice is always certain to be ignored, but that's no reason not to give it. - Agatha Christie
+    ## Failure doesn't mean you are a failure it just means you haven't succeeded yet. - Robert Schuller
