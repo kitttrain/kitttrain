@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Failure doesn't mean you are a failure it just means you haven't succeeded yet. - Robert Schuller
+    ## There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. - Denis Waitley
