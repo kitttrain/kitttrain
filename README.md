@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. - Denis Waitley
+    ## We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity. - Barbara De Angelis
