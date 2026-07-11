@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity. - Barbara De Angelis
+    ## Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy; you can't build on it; it's only for wallowing in. - Katherine Mansfield
