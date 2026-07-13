@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Sincerity is the way of Heaven. The attainment of sincerity is the way of men. - Confucius
+    ## You give before you get. - Napoleon Hill
