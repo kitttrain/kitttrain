@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You give before you get. - Napoleon Hill
+    ## So much technology, so little talent. - Vernor Vinge
