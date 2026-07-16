@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. - Helen Keller
+    ## I will prepare and some day my chance will come. - Abraham Lincoln
