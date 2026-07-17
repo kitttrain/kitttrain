@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I will prepare and some day my chance will come. - Abraham Lincoln
+    ## You can do it if you believe you can! - Napoleon Hill
