@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You can do it if you believe you can! - Napoleon Hill
+    ## The superior man blames himself. The inferior man blames others. - Don Shula
