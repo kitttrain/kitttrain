@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Wisdom has never made a bigot, but learning has. - Josh Billings
+    ## Silence at the proper season is wisdom, and better than any speech. - Plutarch
