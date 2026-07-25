@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A true friend is the most precious of all possessions and the one we take the least thought about acquiring. - François de La Rochefoucauld
+    ## Happiness is found in doing, not merely possessing. - Napoleon Hill
