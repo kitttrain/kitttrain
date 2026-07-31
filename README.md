@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it. - Hugh Jackman
+    ## The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger. - Michelle Obama
