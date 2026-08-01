@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger. - Michelle Obama
+    ## If you think you can, you can. And if you think you can't, you're right. - Henry Ford
