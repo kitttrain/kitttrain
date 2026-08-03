@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The most formidable weapon against errors of every kind is reason. - Thomas Paine
+    ## Nothing but heaven itself is better than a friend who is really a friend. - Plautus
