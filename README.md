@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you're changing the world, you're working on important things. You're excited to get up in the morning. - Larry Page
+    ## If you fell down yesterday, stand up today. - H. G. Wells
