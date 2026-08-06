@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If you fell down yesterday, stand up today. - H. G. Wells
+    ## I can, therefore I am. - Simone Weil
