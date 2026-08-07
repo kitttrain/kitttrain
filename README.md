@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I can, therefore I am. - Simone Weil
+    ## Don't settle for a relationship that won't let you be yourself. - Oprah Winfrey
