@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. - Kahlil Gibran
+    ## Those who dream by day are cognizant of many things which escape those who dream only by night. - Edgar Allan Poe
