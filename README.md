@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Light tomorrow with today! - Elizabeth Browning
+    ## You are that vast thing that you see far, far off with great telescopes. - Alan Watts
