@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You are that vast thing that you see far, far off with great telescopes. - Alan Watts
+    ## All that we see or seem is but a dream within a dream. - Edgar Allan Poe
