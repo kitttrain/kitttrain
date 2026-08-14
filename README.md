@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise. - Anne Brontë
+    ## Problems are only opportunities with thorns on them. - Hugh Miller
