@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Problems are only opportunities with thorns on them. - Hugh Miller
+    ## Trust your own instinct. Your mistakes might as well be your own, instead of someone else's. - Billy Wilder
