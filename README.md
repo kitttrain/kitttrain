@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Trust your own instinct. Your mistakes might as well be your own, instead of someone else's. - Billy Wilder
+    ## Efficiency is doing things right; effectiveness is doing the right things. - Peter Drucker
