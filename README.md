@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## In the business world, the rearview mirror is always clearer than the windshield. - Warren Buffett
+    ## Let the beauty of what you love be what you do. - Rumi
