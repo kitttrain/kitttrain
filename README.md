@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Let the beauty of what you love be what you do. - Rumi
+    ## What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part. - Christopher Reeve
