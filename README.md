@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part. - Christopher Reeve
+    ## It is the mark of an educated mind to be able to entertain a thought without accepting it. - Aristotle
