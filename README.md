@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## It is the mark of an educated mind to be able to entertain a thought without accepting it. - Aristotle
+    ## Friendship is Love without his wings! - Lord Byron
