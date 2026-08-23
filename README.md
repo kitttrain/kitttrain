@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Friendship is Love without his wings! - Lord Byron
+    ## Good, better, best. Never let it rest. ‘Til your good is better and your better is best. - Jerome
