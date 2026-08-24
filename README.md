@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Good, better, best. Never let it rest. ‘Til your good is better and your better is best. - Jerome
+    ## The pine stays green in winter... wisdom in hardship. - Norman Douglas
