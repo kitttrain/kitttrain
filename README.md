@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The pine stays green in winter... wisdom in hardship. - Norman Douglas
+    ## Today you are you! That is truer than true! There is no one alive who is you-er than you! - Dr. Seuss
