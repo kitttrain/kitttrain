@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## To have much learning and skill, to be well-trained in discipline, and good in speech — this is the highest blessing. - The Buddha
+    ## He who knows others is wise. He who knows himself is enlightened. - Laozi
