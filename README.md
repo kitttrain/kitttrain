@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## He who knows others is wise. He who knows himself is enlightened. - Laozi
+    ## When people are like each other they tend to like each other. - Tony Robbins
