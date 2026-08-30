@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## When people are like each other they tend to like each other. - Tony Robbins
+    ## One fails forward toward success. - Charles F. Kettering
