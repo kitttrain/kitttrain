@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## One fails forward toward success. - Charles F. Kettering
+    ## Do one thing every day that scares you. - Eleanor Roosevelt
