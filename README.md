@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others - The Buddha
+    ## Strong beliefs win strong men, and then make them stronger. - Richard Bach
