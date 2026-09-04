@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Strong beliefs win strong men, and then make them stronger. - Richard Bach
+    ## One of the advantages of being disorderly is that one is constantly making exciting discoveries. - A. A. Milne
