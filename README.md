@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds. - Will Durant
+    ## Remember that the most valuable antiques are dear old friends. - H. Jackson Brown Jr.
