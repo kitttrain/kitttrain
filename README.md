@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Remember that the most valuable antiques are dear old friends. - H. Jackson Brown Jr.
+    ## Gratitude is the fairest blossom which springs from the soul. - Henry K. Beecher
