@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Gratitude is the fairest blossom which springs from the soul. - Henry K. Beecher
+    ## True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions. - Joseph Addison
