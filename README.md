@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions. - Joseph Addison
+    ## We cannot be more sensitive to pleasure without being more sensitive to pain. - Alan Watts
