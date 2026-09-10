@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We cannot be more sensitive to pleasure without being more sensitive to pain. - Alan Watts
+    ## Genius unrefined resembles a flash of lightning, but wisdom is like the sun. - Franz Grillparzer
