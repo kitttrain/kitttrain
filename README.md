@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Genius unrefined resembles a flash of lightning, but wisdom is like the sun. - Franz Grillparzer
+    ## We never understand how little we need in this world until we know the loss of it. - J. M. Barrie
