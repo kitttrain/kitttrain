@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We never understand how little we need in this world until we know the loss of it. - J. M. Barrie
+    ## Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. - Stewart Brand
