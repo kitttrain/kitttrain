@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. - Stewart Brand
+    ## Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry. - Earl Monroe
