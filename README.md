@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry. - Earl Monroe
+    ## Logic will get you from A to B. Imagination will take you everywhere. - Albert Einstein
