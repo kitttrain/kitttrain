@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## The truth of the matter is that you always know the right thing to do. The hard part is doing it. - Norman Schwarzkopf
+    ## A thing long expected takes the form of the unexpected when at last it comes. - Mark Twain
