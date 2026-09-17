@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## A thing long expected takes the form of the unexpected when at last it comes. - Mark Twain
+    ## Always be a first-rate version of yourself, instead of a second-rate version of somebody else. - Judy Garland
